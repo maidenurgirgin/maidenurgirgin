@@ -2,7 +2,7 @@
 - 👀 I’m interested in UX perfect project
 - 🌱 I’m currently learning GitHub
 - 💞️ I’m looking to collaborate on those who need UX / UI Designer
-- 📫 How to reach me https://wa.me/905416240012
+- 📫 How to reach me info@maidenurgirgin.com
 - 😄 Pronouns: UXHunter
 - ⚡ Fun fact: https://twitter.com/maidenurgirgin
 
